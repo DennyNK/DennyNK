@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects related to animal rights, human rights, cooking
 - 📫 How to reach me dnkovacheva@gmail.com
 - 😄 Pronouns: she / her
-- ⚡ Fun fact: Once I walked to the seaside. 640 km. :)
+- ⚡ Fun fact: One time I walked to the seaside. 640 km. :)
 
 <!---
 DennyNK/DennyNK is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
